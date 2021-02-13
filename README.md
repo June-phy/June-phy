@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @June-phy
-- 👀 I’m interested in ...
+- 👀 I’m interested in Positron Emission Tomography
 - 🌱 I’m currently learning OMEGA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: qxSan0@163.com
